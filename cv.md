@@ -1,6 +1,6 @@
 # **Konstantin Timchenko**
 
-![alt](/Foto.png)
+![alt](/Foto.jpg)
 
 ## Contacts for communication
 
